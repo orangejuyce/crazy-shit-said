@@ -38,3 +38,7 @@ out of pocket shit updating when i want to 🤗🤗
 10:42 PM["What was that sound?" !ORP!] cutest wittle puppy wuppy in the rooom
 
 11:34 PM[⭐2 remind u of our love~] Istg these white ppl are too happy
+
+03:35 PM[jax naked dni clothes] at least my parents arent siblings
+
+03:53 PM[💀Tac nayn💀(Outfits✨)(Lucas💖] *Purrs you*
