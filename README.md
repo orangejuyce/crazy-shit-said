@@ -42,3 +42,14 @@ out of pocket shit updating when i want to 🤗🤗
 03:35 PM[jax naked dni clothes] at least my parents arent siblings
 
 03:53 PM[💀Tac nayn💀(Outfits✨)(Lucas💖] *Purrs you*
+
+04:18 PM[◇《Sir lancelot》◇] cutely dislocates your shoulder
+
+04:27 PM[♡Irl me in a dino onesie♡] KITTEN COME OUT
+
+04:35 PM[# syn+C'link . BRIAR . offtab] dang shawty your fine..!
+
+04:39 PM[jax naked dni clothes] your mom had no dignity having you
+
+04:43 PM[Bluudud. (The original)] We are the c00lshits feed us
+
