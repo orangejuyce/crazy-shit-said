@@ -57,3 +57,4 @@ out of pocket shit updating when i want to 🤗🤗
 
 04:43 PM[Bluudud. (The original)] We are the c00lshits feed us
 
+08:19 PM[get ya sum crunchy oats/ref] your daddy's home
