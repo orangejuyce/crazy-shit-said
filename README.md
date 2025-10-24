@@ -62,3 +62,9 @@ out of pocket shit updating when i want to 🤗🤗
 07:07 PM[shingo/matt . ksona] ohayo oniichan
 
 07:18 PM[shingo/matt . ksona] woodyfriend inside me
+
+07:47 PM[Sark as Chocolate cake] *Nuzzles*
+
+07:53 PM[animosity] sipping on promethazine with lean I fell in luh 💔💔💔 I fell in luh with lean I fell in luh 🥀💔🥀 sipping on promethazine with lean I fell in luh 💔
+
+
